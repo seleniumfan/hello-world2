@@ -3,4 +3,6 @@ Drugi projekt
 
 Testowo projektowo:)
 
+Calkiem nowy wpis:):):)
+
 
